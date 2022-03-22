@@ -4,7 +4,7 @@
 
 📫 You can find my contact information on the left.
 
-😄 You can get to know me by reading ifmet.cn.
+😄 You can get to know me by reading github.com/tingzhehong.
 
 ⚡ I like programming 👨‍💻, reading 📚, cooking 🍽，traveling 🍀，and make new friends 🙈.
 
